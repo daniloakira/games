@@ -1,0 +1,5 @@
+# mortal kombat :punch:
+
+##### descrição
+
+Em Mortal Kombat, o lutador de MMA Cole Young, acostumado a apanhar por dinheiro, não faz ideia da herança que carrega - ou por que o Imperador da Exoterra, Shang Tsung, enviou seu melhor guerreiro, Sub-Zero, um criomancer de outro mundo, para exterminar Cole. Temendo pela segurança de sua família, Cole sai em busca de Sonya Blade por recomendação de Jax, um major das Forças Especiais que tem a mesma estranha marca de nascença na forma de dragão que Cole. Logo, ele se encontra no templo do Lorde Raiden, um Deus Ancião e protetor do reino da Terra, que acolhe aqueles que ostentam a marca. Lá, Cole treina com os experientes guerreiros Liu Kang, Kung Lao e o mercenário vigarista Kano, à medida que se prepara para enfrentar, ao lado dos maiores campeões da Terra, inimigos oriundos da Exoterra em uma arriscada batalha pelo universo. Contudo, será que ele treinará o bastante para desbloquear sua arcana - o imenso poder que existe dentro de sua alma – a tempo não só de salvar sua família, mas também de vencer a Exoterra de uma vez por todas?
